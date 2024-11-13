@@ -1,3 +1,3 @@
 ## Credits
-Personal Project Practice:
+Practice Project
 (https://www.youtube.com/watch?v=GMdgjaDdOjI)
